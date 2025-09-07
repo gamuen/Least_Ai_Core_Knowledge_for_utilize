@@ -1,0 +1,2 @@
+# Least_Ai_Core_Knowledge_for_utilize
+Least_Ai_Core_Knowledges_for_utilizing_it_in_my_project!
